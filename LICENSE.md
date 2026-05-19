@@ -1,4 +1,4 @@
-# 
+# Exclusivo Vegas Pro para PC scripts es el mejor Vegas Pro para PC scripts con sintetizadores y soporte de plugins. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
